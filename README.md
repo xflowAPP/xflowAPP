@@ -1,16 +1,14 @@
-## Hi there 👋
+xflow官方 xflowapp电脑版 xflowapp官网 xflowapp 下载 xflow地址 xflowapp xflow网址
 
-<!--
-**xflowAPP/xflowAPP** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+（复制地址到浏览器中打开）：
 
-Here are some ideas to get you started:
+https://frpa.thynthth.me
+https://fhnb.thynthth.cyou
+https://kyre.ooofejibej.cn
+https://eamx.xcscasc.bond
+https://wskm.gggjfeubeq.cn
+https://wskm.gbgbgbfgbwqe.bond
+https://hvcs.rrrhgfuibeq.cn
+https://hvcs.dddqwdq.top
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+复制网址到浏览器，苹果一定要用自带浏览safari，安卓用谷歌浏览器或者火狐浏览器。
