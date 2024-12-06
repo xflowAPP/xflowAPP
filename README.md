@@ -24,8 +24,6 @@ https://obqa.aaajgrtibyj.cn
 
 https://obws.thynthth.me
 
-https://obed.pikaqiu.xyz
-
 https://obrf.wdwdw.vip
 
 https://obtg.ioioio.vip
